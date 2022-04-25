@@ -1,1 +1,0 @@
-# Cult-Of_cryptids-Chapter-1-with-GUI
